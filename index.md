@@ -7,6 +7,10 @@ I'm hosted with Github Pages.
     * Springfield, MA, Sun Aug 27, 2017
         * Masters 45+ (Cross Cat 1-4)	45 minutes	10:00 AM	
 
+1. [Whirlybird 'Cross (MAC #1)](https://www.bikereg.com/34481)
+    * Bryn Athyn, PA, Sun Sep 10, 2017
+        * Cat 1/2/3/4 Master Men 45+	45 minutes	11:00 AM
+
 1. [12th Annual Nittany Lion Cross & NRC](https://www.bikereg.com/12th-annual-nittany-lion-cross)
     * Breinigsville, PA, Sat Sep 16 - Sun Sep 17, 2017
         * SATURDAY 3:30 PM RACE - CAT 3/4 MEN - SAT Men Cat 3/4	45 minutes	3:30 PM
