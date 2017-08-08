@@ -24,3 +24,8 @@ I'm hosted with Github Pages.
     * Thompson, CT, Fri Sep 29 - Sat Sep 30, 2017
         * FRIDAY: Cat 1-4 Masters Men 35+	45 minutes	2:30 PM
         * SATURDAY: Elite Masters 35+ (Cat 1-3)	45 minutes	2:30 PM
+
+1. [CRAFT Sportswear Gran Prix of Gloucester Presented by Ipswich Brewing, Vittoria Northeast 1 & 2](https://www.bikereg.com/35020)
+    * Gloucester, MA, Sat Oct 14 - Sun Oct 15, 2017
+        * SATURDAY: Men Cat 3	45 minutes	1:45 PM
+        * SUNDAY: Men Masters 40+ Cat 1/2/3/4 & Men Junior 15-18 Cat 1/2/3/4	45 minutes	11:30 AM
