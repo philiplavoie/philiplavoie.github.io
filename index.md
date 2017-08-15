@@ -29,3 +29,7 @@ I'm hosted with Github Pages.
     * Gloucester, MA, Sat Oct 14 - Sun Oct 15, 2017
         * SATURDAY: Men Cat 3	45 minutes	1:45 PM
         * SUNDAY: Men Masters 40+ Cat 1/2/3/4 & Men Junior 15-18 Cat 1/2/3/4	45 minutes	11:30 AM
+
+1. [BubbleCross](https://www.bikereg.com/bubblecross)
+    * West Milford, NJ, Sat Nov 11, 2017]
+        * Cat 3	50 minutes	3:15 PM
