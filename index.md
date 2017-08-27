@@ -7,6 +7,10 @@ I'm hosted with Github Pages.
     * Springfield, MA, Sun Aug 27, 2017
         * Masters 45+ (Cross Cat 1-4)	45 minutes	10:00 AM	
 
+1. [BCA Cyclocross](https://www.bikereg.com/35310)
+    * Pittsfield, MA, Sun Sep 3, 2017
+        * Masters 45+	45 minutes	12:00 PM
+
 1. [Hartford Riverfront Cyclocross](https://www.bikereg.com/35718)
     * Hartford, CT, Sat Sep 9, 2017
         * Masters 40+	45 minutes	11:00 AM
