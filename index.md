@@ -14,6 +14,7 @@ I'm hosted with Github Pages.
 1. [Hartford Riverfront Cyclocross](https://www.bikereg.com/35718)
     * Hartford, CT, Sat Sep 9, 2017
         * Masters 40+	45 minutes	11:00 AM
+    * **Missed it due to family flying in from ABQ**
 
 1. [Whirlybird 'Cross (MAC #1)](https://www.bikereg.com/34481)
     * Bryn Athyn, PA, Sun Sep 10, 2017
