@@ -34,6 +34,11 @@ I'm hosted with Github Pages.
         * SATURDAY: Men Cat 3	45 minutes	1:45 PM
         * SUNDAY: Men Masters 40+ Cat 1/2/3/4 & Men Junior 15-18 Cat 1/2/3/4	45 minutes	11:30 AM
 
+1. [DCCX - UCI C2 Weekend- Event #4 in the 2017 BikeReg.com Cyclocross Super Series](https://www.bikereg.com/35984)
+    * Washington, DC, Sat Oct 21 - Sun Oct 22, 2017
+        * Saturday - Men Cat. 2/3	45 minutes	11:00 AM
+        * Sunday - Men Cat. 2/3	45 minutes	11:00 AM
+
 1. [BubbleCross](https://www.bikereg.com/bubblecross)
     * West Milford, NJ, Sat Nov 11, 2017]
         * Cat 3	50 minutes	3:15 PM
