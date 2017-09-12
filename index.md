@@ -40,6 +40,11 @@ I'm hosted with Github Pages.
         * Saturday - Men Cat. 2/3	45 minutes	11:00 AM
         * Sunday - Men Cat. 2/3	45 minutes	11:00 AM
 
+1. [Derby City Cup](http://ovcx.com/races/derby-city-cup/)
+    * Louisville, KY, Fri Nov 3 - Sun Nov 5, 2017
+        * Men Cat 3 - Saturday	40 minutes	10:55 AM
+        * Men Cat 3 - Sunday	45 minutes	10:05 AM
+
 1. [BubbleCross](https://www.bikereg.com/bubblecross)
     * West Milford, NJ, Sat Nov 11, 2017]
         * Cat 3	50 minutes	3:15 PM
