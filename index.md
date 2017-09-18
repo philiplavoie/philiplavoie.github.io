@@ -24,6 +24,10 @@ I'm hosted with Github Pages.
     * Breinigsville, PA, Sat Sep 16 - Sun Sep 17, 2017
         * SATURDAY 3:30 PM RACE - CAT 3/4 MEN - SAT Men Cat 3/4	45 minutes	3:30 PM
         * SUNDAY 11 AM RACES - MASTER MEN 45+ - SUN Master Men 45+ Cat 1/2/3/4	45 minutes	11:00 AM
+        
+1. [Bridgeton Cross (NJCX #1)](https://www.bikereg.com/35655)
+    * Bridgeton, NJ, Sun Sep 24, 2017
+        * Men Cat 3	45 minutes	2:00 PM
 
 1. [KMC Cross Fest UCI C1/C2 and Gran Fondo New England](https://www.bikereg.com/35789)
     * Thompson, CT, Fri Sep 29 - Sat Sep 30, 2017
