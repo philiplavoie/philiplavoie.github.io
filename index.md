@@ -44,6 +44,11 @@ I'm hosted with Github Pages.
         * Saturday - Men Cat. 2/3	45 minutes	11:00 AM
         * Sunday - Men Cat. 2/3	45 minutes	11:00 AM
 
+1. [HPCX - UCI C2 - ProCX, MAC, ECCC](https://www.bikereg.com/36230)
+    * Jamesburg, NJ, Sat Oct 28 - Sun Oct 29, 2017
+        * Sat Cat 3/4 Men	45 minutes	3:30 PM
+        * Sun Cat 1/2/3/4 Masters Men 45+	45 minutes	11:00 AM
+
 1. [Derby City Cup](http://ovcx.com/races/derby-city-cup/)
     * Louisville, KY, Fri Nov 3 - Sun Nov 5, 2017
         * Men Cat 3 - Saturday	40 minutes	10:55 AM
