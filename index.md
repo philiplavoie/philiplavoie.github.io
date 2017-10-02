@@ -38,6 +38,7 @@ I'm hosted with Github Pages.
 1. [Mansfield Hollow Cyclocross](https://www.bikereg.com/35814)
     * Mansfield Center, CT, Sat Oct 7, 2017
         * Mens 3-4	45 minutes	12:30 PM
+        * Zanconato Single Speed Series 40 minutes 3:45 PM
 
 1. [CRAFT Sportswear Gran Prix of Gloucester Presented by Ipswich Brewing, Vittoria Northeast 1 & 2](https://www.bikereg.com/35020)
     * Gloucester, MA, Sat Oct 14 - Sun Oct 15, 2017
