@@ -67,3 +67,8 @@ I'm hosted with Github Pages.
 1. [NoHo](http://www.nohocx.com/registration)
     * Northampton, MA, Sun Nov 12, 2017
         * Sunday: Cat. 3 Men	45 minutes	1:00 PM
+
+1. [Rockland County Supercross Cup 2017, UCI C2-C2 Weekend](https://www.bikereg.com/35976)
+    * Suffern, NY, Sat Nov 18 - Sun Nov 19, 2017
+        * Saturday Men 40+ Cat 1-4	45 minutes	10:45 AM (w/jrs)
+        * Sunday Men 40+ Cat 1-4	45 minutes	10:45 AM (w/jrs)
