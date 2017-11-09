@@ -72,3 +72,19 @@ I'm hosted with Github Pages.
     * Suffern, NY, Sat Nov 18 - Sun Nov 19, 2017
         * Saturday Men 40+ Cat 1-4	45 minutes	10:45 AM (w/jrs)
         * Sunday Men 40+ Cat 1-4	45 minutes	10:45 AM (w/jrs)
+
+1. [BLACK FRIDAY 2017 March Farm Cyclo Madness](https://www.bikereg.com/35753)
+    * Bethelehem, CT, Fri Nov 24, 2017
+        * Men 3/4	45 minutes	12:10 PM
+
+1. [NBX](https://www.bikereg.com/nbx)
+    * Warwick, RI, Sat Dec 2 - Sun Dec 3, 2017
+        * SUN - Cat 3 Men - 45 minutes  - 12:30 PM
+
+1. [Reno Cyclo-cross Men Non-Championship 40-49](https://www.usacycling.org/myusac/index.php?pagename=mypage)
+    * Reno, NV, Tuesday January 9th, 2018
+        * 01/09/2018 Cyclo-cross Men Non-Championship 40-49
+
+1. [Reno Cyclo-cross Men Master 45-49 Cat 1/2/3](https://www.usacycling.org/myusac/index.php?pagename=mypage)
+    * Reno, NV, Tuesday January 11th, 2018
+        * 01/11/2018 Cyclo-cross Men Master 45-49 Cat 1/2/3
