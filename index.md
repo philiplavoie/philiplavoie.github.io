@@ -86,5 +86,5 @@ I'm hosted with Github Pages.
         * 01/09/2018 Cyclo-cross Men Non-Championship 40-49
 
 1. [Reno Cyclo-cross Men Master 45-49 Cat 1/2/3](https://www.usacycling.org/myusac/index.php?pagename=mypage)
-    * Reno, NV, Tuesday January 11th, 2018
+    * Reno, NV, Thursday January 11th, 2018
         * 01/11/2018 Cyclo-cross Men Master 45-49 Cat 1/2/3
