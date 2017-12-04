@@ -80,6 +80,11 @@ I'm hosted with Github Pages.
 1. [NBX](https://www.bikereg.com/nbx)
     * Warwick, RI, Sat Dec 2 - Sun Dec 3, 2017
         * SUN - Cat 3 Men - 45 minutes  - 12:30 PM
+        * **Missed it due to flying in from Vegas**
+
+1. [Ice Weasels](https://www.bikereg.com/dah-weasel)
+    * West Warwick, RI, Sat Dec 9, 2017
+        * Killer B Men 40+	45 minutes	10:30 AM
 
 1. [Reno Cyclo-cross Men Non-Championship 40-49](https://www.usacycling.org/myusac/index.php?pagename=mypage)
     * Reno, NV, Tuesday January 9th, 2018
