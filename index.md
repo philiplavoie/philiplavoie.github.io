@@ -86,6 +86,10 @@ I'm hosted with Github Pages.
     * West Warwick, RI, Sat Dec 9, 2017
         * Killer B Men 40+	45 minutes	10:30 AM
 
+1. [Elm City CX](https://www.bikereg.com/elmcitycx)
+    * New Haven , CT, Sun Dec 17, 2017
+        * Cat. 3/4	45 minutes	12:00 PM
+
 1. [Reno Cyclo-cross Men Non-Championship 40-49](https://www.usacycling.org/myusac/index.php?pagename=mypage)
     * Reno, NV, Tuesday January 9th, 2018
         * 01/09/2018 Cyclo-cross Men Non-Championship 40-49
