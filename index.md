@@ -1,7 +1,5 @@
 # Hello World
 
-I'm hosted with Github Pages.
-
 ## Here's my racing schedule for 2017:
 1. [CompEdge Cross @ Blunt Park](https://www.bikereg.com/35565)
     * Springfield, MA, Sun Aug 27, 2017
