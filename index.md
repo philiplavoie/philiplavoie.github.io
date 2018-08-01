@@ -1,5 +1,13 @@
 # Hello World
 
+## Here's my racing schedule for 2018:
+1. [13th Annual Nittany Lion Cross & UCI Class 2](https://www.bikereg.com/39675)
+    * September 15, 2018 - September 16, 2018
+    * 1151 Mosser Road, Valley Preferred CyclingCenter Breinigsville PA 
+        * SAT Cat 1/2/3/4 Master 40+ Men 
+        * SUN CAT 1/2/3/4 Master 40+ Men - (2018-09-16) 
+
+
 ## Here's my racing schedule for 2017:
 1. [CompEdge Cross @ Blunt Park](https://www.bikereg.com/35565)
     * Springfield, MA, Sun Aug 27, 2017
