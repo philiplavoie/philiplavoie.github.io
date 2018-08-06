@@ -14,6 +14,13 @@
         * SAT Cat 1/2/3/4 Master 40+ Men 
         * SUN CAT 1/2/3/4 Master 40+ Men
 
+1. [Charm City Cross (UCI C1/C2)](https://www.bikereg.com/charmcitycross)
+    *  Baltimore, MD, Sat Oct 6 - Sun Oct 7, 2018 
+    *  Zoo Mansion House Drive, Baltimore, MD  21217
+        * 10:00AM both days
+        * Saturday Masters Men 40+ (Cat 3/4/5)
+        * Sunday Masters Men 40+ (Cat 3/4/5)
+
 
 ## Here's my racing schedule for 2017:
 1. [CompEdge Cross @ Blunt Park](https://www.bikereg.com/35565)
