@@ -1,6 +1,12 @@
 # Hello World
 
 ## Here's my racing schedule for 2018:
+
+1. [CompEdge Cross @ Blunt Park](https://www.bikereg.com/blunt-park-cyclocross-race)
+    * Springfield, MA, Sun Aug 26, 2018 
+    * blunt park, springfield ma, Springfield, MA  01111
+        * 10:00AM Masters 45+ (Cross Cat 1-4)
+
 1. [13th Annual Nittany Lion Cross & UCI Class 2](https://www.bikereg.com/39675)
     * September 15, 2018 - September 16, 2018
     * 1151 Mosser Road, Valley Preferred CyclingCenter Breinigsville PA
