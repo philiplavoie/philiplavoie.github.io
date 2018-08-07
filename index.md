@@ -21,6 +21,13 @@
         * Saturday Masters Men 40+ (Cat 3/4/5)
         * Sunday Masters Men 40+ (Cat 3/4/5)
 
+1. [20th CRAFT Sportswear Gran Prix of Gloucester Presented by Ipswich Brewing](https://www.bikereg.com/gpg18)
+    *  Gloucester, MA, Sat Oct 13 - Sun Oct 14, 2018
+    *  Stage Fort Park, Gloucester, MA  01930
+        * 11:30AM both days
+        * SATURDAY: Men Masters 40+ Cat 1/2/3/4 & Men Junior 15-18 Cat 1/2/3/4
+        * SUNDAY: Men Masters 40+ Cat 1/2/3/4 & Men Junior 15-18 Cat 1/2/3/4
+
 
 ## Here's my racing schedule for 2017:
 1. [CompEdge Cross @ Blunt Park](https://www.bikereg.com/35565)
