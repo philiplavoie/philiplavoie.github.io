@@ -28,6 +28,12 @@
         * SATURDAY: Men Masters 40+ Cat 1/2/3/4 & Men Junior 15-18 Cat 1/2/3/4
         * SUNDAY: Men Masters 40+ Cat 1/2/3/4 & Men Junior 15-18 Cat 1/2/3/4
 
+1. [ DCCX - UCI C2 Weekend](https://www.bikereg.com/gpg18)
+    *  Washington, DC, Sat Oct 20 - Sun Oct 21, 2018
+    *  [324 Rock Creek Church Road NW, Washington, DC  20011](https://maps.google.com/?daddr=38.9388674,-77.0162368)
+        * 10AM both days
+        * SATURDAY: Masters 40+ Intermediate (3/4/5)
+        * SUNDAY: Masters 40+ Intermediate (3/4/5)
 
 ## Here's my racing schedule for 2017:
 1. [CompEdge Cross @ Blunt Park](https://www.bikereg.com/35565)
