@@ -2,10 +2,15 @@
 
 ## Here's my racing schedule for 2018:
 
-1. [CompEdge Cross @ Blunt Park](https://www.bikereg.com/blunt-park-cyclocross-race)
+1. [CompEdge Cross @ Blunt Park](https://www.bikereg.com/blunt-park-cyclocross-race) - DNS
     * Springfield, MA, Sun Aug 26, 2018 
     * blunt park, springfield ma, Springfield, MA  01111
         * 10:00AM Masters 45+ (Cross Cat 1-4)
+
+1. [ The PCX Training Series A & B Races](https://www.bikereg.com/the-pcx-training-series)
+    * Patterson, NY, Sun Sep 9, 2018
+    * [3198 rt 22, Patterson, NY  12563](https://maps.google.com/?daddr=3198+rt+22+Patterson+NY)
+        * A & B Practice Races 9AM & 10:30AM - 45min each
 
 1. [13th Annual Nittany Lion Cross & UCI Class 2](https://www.bikereg.com/39675)
     * September 15, 2018 - September 16, 2018
