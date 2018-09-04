@@ -7,7 +7,12 @@
     * blunt park, springfield ma, Springfield, MA  01111
         * 10:00AM Masters 45+ (Cross Cat 1-4)
 
-1. [ The PCX Training Series A & B Races](https://www.bikereg.com/the-pcx-training-series)
+1. [Rocky Point 50](https://www.bikereg.com/37416)
+    * Rocky Point, NY, Sat Sep 8, 2018 - 9AM
+    * [rocky point mountain bike trail, Rocky Point, NY  11778](https://maps.google.com/?daddr=40.9113057,-72.9418564)
+        * Cat 1 Male 45 and Over - 50 miles- 9:00 AM
+
+1. [The PCX Training Series A & B Races](https://www.bikereg.com/the-pcx-training-series)
     * Patterson, NY, Sun Sep 9, 2018
     * [3198 rt 22, Patterson, NY  12563](https://maps.google.com/?daddr=3198+rt+22+Patterson+NY)
         * A & B Practice Races 9AM & 10:30AM - 45min each
@@ -33,7 +38,7 @@
         * SATURDAY: Men Masters 40+ Cat 1/2/3/4 & Men Junior 15-18 Cat 1/2/3/4
         * SUNDAY: Men Masters 40+ Cat 1/2/3/4 & Men Junior 15-18 Cat 1/2/3/4
 
-1. [ DCCX - UCI C2 Weekend](https://www.bikereg.com/gpg18)
+1. [DCCX - UCI C2 Weekend](https://www.bikereg.com/gpg18)
     *  Washington, DC, Sat Oct 20 - Sun Oct 21, 2018
     *  [324 Rock Creek Church Road NW, Washington, DC  20011](https://maps.google.com/?daddr=38.9388674,-77.0162368)
         * 10AM both days
