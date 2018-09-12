@@ -7,12 +7,12 @@
     * blunt park, springfield ma, Springfield, MA  01111
         * 10:00AM Masters 45+ (Cross Cat 1-4)
 
-1. [Rocky Point 50](https://www.bikereg.com/37416)
+1. [Rocky Point 50](https://www.bikereg.com/37416) - 4hrs
     * Rocky Point, NY, Sat Sep 8, 2018 - 9AM
     * [rocky point mountain bike trail, Rocky Point, NY  11778](https://maps.google.com/?daddr=40.9113057,-72.9418564)
         * Cat 1 Male 45 and Over - 50 miles- 9:00 AM
 
-1. [The PCX Training Series A & B Races](https://www.bikereg.com/the-pcx-training-series)
+1. [The PCX Training Series A & B Races](https://www.bikereg.com/the-pcx-training-series) - A - 3rd
     * Patterson, NY, Sun Sep 9, 2018
     * [3198 rt 22, Patterson, NY  12563](https://maps.google.com/?daddr=3198+rt+22+Patterson+NY)
         * A & B Practice Races 9AM & 10:30AM - 45min each
