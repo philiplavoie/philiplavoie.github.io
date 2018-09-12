@@ -21,11 +21,16 @@
     * September 15, 2018 - September 16, 2018
     * 1151 Mosser Road, Valley Preferred CyclingCenter Breinigsville PA
         * 10:30AM both days
-        * SAT Cat 1/2/3/4 Master 40+ Men 
+        * SAT Cat 1/2/3/4 Master 40+ Men
         * SUN CAT 1/2/3/4 Master 40+ Men
 
+1. [Newtown Cyclocross p/b the CCAP and Team 26](https://www.bikereg.com/39891)
+    * Newtown, CT, Sun Sep 23, 2018
+    * [4 Wildlife Dr Newtown, CT 06470, Newtown, CT  06470](https://maps.google.com/?daddr=41.405166,-73.2857648)
+        * Masters 40+ (1-4)	45 minutes	11:00 AM
+
 1. [Charm City Cross (UCI C1/C2)](https://www.bikereg.com/charmcitycross)
-    *  Baltimore, MD, Sat Oct 6 - Sun Oct 7, 2018 
+    *  Baltimore, MD, Sat Oct 6 - Sun Oct 7, 2018
     *  Zoo Mansion House Drive, Baltimore, MD  21217
         * 10:00AM both days
         * Saturday Masters Men 40+ (Cat 3/4/5)
