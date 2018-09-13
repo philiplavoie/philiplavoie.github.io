@@ -55,6 +55,9 @@
         * SATURDAY: Masters 40+ Intermediate (3/4/5)
         * SUNDAY: Masters 40+ Intermediate (3/4/5)
 
+1. [USAC-CX Nationals Week](https://legacy.usacycling.org/2018/cx-nationals)
+    *  December 11-16, 2018 - Louisville, Ky.
+
 ## Here's my racing schedule for 2017:
 1. [CompEdge Cross @ Blunt Park](https://www.bikereg.com/35565)
     * Springfield, MA, Sun Aug 27, 2017
