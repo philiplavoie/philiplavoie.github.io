@@ -29,6 +29,11 @@
     * [4 Wildlife Dr Newtown, CT 06470, Newtown, CT  06470](https://maps.google.com/?daddr=41.405166,-73.2857648)
         * Masters 40+ (1-4)	45 minutes	11:00 AM
 
+1. [NJ CX Cup Race #2 - Lucky Charm Cyclocross](https://www.bikereg.com/lucky-charm-cyclocross)
+    * Newfoundland, NJ, Sat Sep 29, 2018
+    * [ 1175 Green Pond Rd, Newfoundland, NJ  07435](https://maps.google.com/?daddr=41.0223366,-74.4592219)
+        * Men Cat 1/2/3/4 - 40+	45 minutes	2:16 PM
+
 1. [Charm City Cross (UCI C1/C2)](https://www.bikereg.com/charmcitycross)
     *  Baltimore, MD, Sat Oct 6 - Sun Oct 7, 2018
     *  Zoo Mansion House Drive, Baltimore, MD  21217
