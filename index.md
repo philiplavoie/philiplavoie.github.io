@@ -42,6 +42,8 @@
         * 10:00AM both days
         * Saturday Masters Men 40+ (Cat 3/4/5)
         * Sunday Masters Men 40+ (Cat 3/4/5)
+    * Hampton Inn & Suites Baltimore/Woodlawn - Oct 5, 2018 to Oct 7, 2018
+        * [1810 Belmont Ave, Windsor Mill, MD 21244](https://goo.gl/maps/enzmweTpWyA2)
 
 1. [20th CRAFT Sportswear Gran Prix of Gloucester Presented by Ipswich Brewing](https://www.bikereg.com/gpg18)
     *  Gloucester, MA, Sat Oct 13 - Sun Oct 14, 2018
