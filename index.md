@@ -54,6 +54,8 @@
         * 10AM both days
         * SATURDAY: Masters 40+ Intermediate (3/4/5)
         * SUNDAY: Masters 40+ Intermediate (3/4/5)
+    * Hampton Inn - Oct 19-21
+        * [9670 Baltimore Avenue, College Park, MD 20740](https://goo.gl/maps/5HewBFQ8Pz82)
 
 1. [USAC-CX Nationals Week](https://legacy.usacycling.org/2018/cx-nationals)
     *  December 11-16, 2018 - Louisville, Ky.
