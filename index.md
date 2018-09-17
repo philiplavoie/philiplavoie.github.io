@@ -25,6 +25,7 @@
         * SUN CAT 1/2/3/4 Master 40+ Men
     * Homewood Suites by Hilton Allentown-West/Fogelsville - PA Sept 14-16
         * [7686 Industrial Blvd, Allentown, PA 18106](https://goo.gl/maps/SuFDK2JKnNr)
+    * [Pictures](http://www.mcall.com/news/breaking/mc-pictures-over-500-cyclists-compete-in-the-nittany-lion-cross-cyclocross-race-20180916-photogallery.html)
 
 1. [Newtown Cyclocross p/b the CCAP and Team 26](https://www.bikereg.com/39891)
     * Newtown, CT, Sun Sep 23, 2018
