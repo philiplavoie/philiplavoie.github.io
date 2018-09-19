@@ -21,8 +21,8 @@
     * September 15, 2018 - September 16, 2018
     * 1151 Mosser Road, Valley Preferred CyclingCenter Breinigsville PA
         * 10:30AM both days
-        * SAT Cat 1/2/3/4 Master 40+ Men
-        * SUN CAT 1/2/3/4 Master 40+ Men
+        * SAT Cat 1/2/3/4 Master 40+ Men - 17/58
+        * SUN CAT 1/2/3/4 Master 40+ Men - 21/52
     * Homewood Suites by Hilton Allentown-West/Fogelsville - PA Sept 14-16
         * [7686 Industrial Blvd, Allentown, PA 18106](https://goo.gl/maps/SuFDK2JKnNr)
     * [Pictures](http://www.mcall.com/news/breaking/mc-pictures-over-500-cyclists-compete-in-the-nittany-lion-cross-cyclocross-race-20180916-photogallery.html)
