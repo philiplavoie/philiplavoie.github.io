@@ -62,6 +62,13 @@
     * Hampton Inn - Oct 19-21
         * [9670 Baltimore Avenue, College Park, MD 20740](https://goo.gl/maps/5HewBFQ8Pz82)
 
+1. [Rockland County Supercross Cup 2018, UCI C2-C2 Weekend](https://www.bikereg.com/39876)
+    *  Suffern, NY, Fri Nov 16 - Sun Nov 18, 2018 
+    *  [Rockland Community College, rear parking lot, Suffern, NY, Suffern, NY  10901](https://maps.google.com/?daddr=41.1341305407746,-74.0895297378302)
+        * 10:45AM both days
+        * Saturday Men 40+ Cat 1-4 	45 minutes 	 
+        * Sunday Men 40+ Cat 1-4 	45 minutes
+
 1. [USAC-CX Nationals Week](https://legacy.usacycling.org/2018/cx-nationals)
     *  December 11-16, 2018 - Louisville, Ky.
 
