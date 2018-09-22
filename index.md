@@ -30,7 +30,7 @@
 1. [Newtown Cyclocross p/b the CCAP and Team 26](https://www.bikereg.com/39891)
     * Newtown, CT, Sun Sep 23, 2018
     * [4 Wildlife Dr Newtown, CT 06470, Newtown, CT  06470](https://maps.google.com/?daddr=41.405166,-73.2857648)
-        * Masters 40+ (1-4)	45 minutes	11:00 AM
+        * Cat 3/4 45 minutes	10:00 AM
 
 1. [NJ CX Cup Race #2 - Lucky Charm Cyclocross](https://www.bikereg.com/lucky-charm-cyclocross)
     * Newfoundland, NJ, Sat Sep 29, 2018
