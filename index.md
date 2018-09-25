@@ -62,6 +62,12 @@
     * Hampton Inn - Oct 19-21
         * [9670 Baltimore Avenue, College Park, MD 20740](https://goo.gl/maps/5HewBFQ8Pz82)
 
+1. [North Hampton](https://www.bikereg.com/40200)
+    * Northampton, MA, Sat Nov 10 - Sun Nov 11, 2018
+    * Start line address: [300 N Main St, Northampton, MA  01062](https://goo.gl/maps/DYhV6UgjVo22)
+        * 10:45AM both days
+        * Master 40+ Men 45 min
+
 1. [Rockland County Supercross Cup 2018, UCI C2-C2 Weekend](https://www.bikereg.com/39876)
     *  Suffern, NY, Fri Nov 16 - Sun Nov 18, 2018 
     *  [Rockland Community College, rear parking lot, Suffern, NY, Suffern, NY  10901](https://maps.google.com/?daddr=41.1341305407746,-74.0895297378302)
