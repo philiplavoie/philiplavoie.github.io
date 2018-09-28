@@ -56,9 +56,9 @@
 1. [DCCX - UCI C2 Weekend](https://www.bikereg.com/gpg18)
     *  Washington, DC, Sat Oct 20 - Sun Oct 21, 2018
     *  [324 Rock Creek Church Road NW, Washington, DC  20011](https://maps.google.com/?daddr=38.9388674,-77.0162368)
-        * 10AM both days
-        * SATURDAY: Masters 40+ Intermediate (3/4/5)
-        * SUNDAY: Masters 40+ Intermediate (3/4/5)
+        * 1:00PM both days
+        * Saturday Masters Men 40+ (Cat 1/2/3/4)
+        * Sunday Masters Men 40+ (Cat 1/2/3/4)
     * Hampton Inn - Oct 19-21
         * [9670 Baltimore Avenue, College Park, MD 20740](https://goo.gl/maps/5HewBFQ8Pz82)
 
