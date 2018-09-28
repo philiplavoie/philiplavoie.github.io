@@ -40,9 +40,9 @@
 1. [Charm City Cross (UCI C1/C2)](https://www.bikereg.com/charmcitycross)
     *  Baltimore, MD, Sat Oct 6 - Sun Oct 7, 2018
     *  Zoo Mansion House Drive, Baltimore, MD  21217
-        * 10:00AM both days
-        * Saturday Masters Men 40+ (Cat 3/4/5)
-        * Sunday Masters Men 40+ (Cat 3/4/5)
+        * 1:00PM both days
+        * Saturday Masters Men 40+ (Cat 1/2/3/4)
+        * Sunday Masters Men 40+ (Cat 1/2/3/4)
     * Hampton Inn & Suites Baltimore/Woodlawn - Oct 5, 2018 to Oct 7, 2018
         * [1810 Belmont Ave, Windsor Mill, MD 21244](https://goo.gl/maps/enzmweTpWyA2)
 
