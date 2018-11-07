@@ -75,6 +75,13 @@
         * Saturday Men 40+ Cat 1-4 	45 minutes 	 
         * Sunday Men 40+ Cat 1-4 	45 minutes
 
+1. [NBX G.P. of Cross NECXS Rounds 7 & 8 Finale C1/C2](https://www.bikereg.com/40464)
+    * Warwick, RI, Sat Dec 1 - Sun Dec 2, 2018
+    * [1095 ives road, Warwick, RI  02886](https://maps.google.com/?daddr=41.660319,-71.430932)
+    * 10:15AM Both days
+        * SAT - Masters 40+ Cat 1-4 Men and Cat 1-4 Juniors 15-18	45 minutes	10:15 AM
+        * SUN - Masters 40+ Cat 1-4 Men and Cat 1-4 Juniors 15-18	45 minutes	10:15 AM
+
 1. [USAC-CX Nationals Week](https://legacy.usacycling.org/2018/cx-nationals)
     *  December 11-16, 2018 - Louisville, Ky.
     * 12/11/2018 Cyclo-cross Men Non-Championship 40-49
