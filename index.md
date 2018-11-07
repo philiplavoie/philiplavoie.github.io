@@ -77,6 +77,9 @@
 
 1. [USAC-CX Nationals Week](https://legacy.usacycling.org/2018/cx-nationals)
     *  December 11-16, 2018 - Louisville, Ky.
+    * 12/11/2018 Cyclo-cross Men Non-Championship 40-49
+    * 12/14/2018 Cyclo-cross Men Master 45-49 Cat 1/2/3
+    * 12/15/2018 Cyclo-cross Men Singlespeed
 
 ## Here's my racing schedule for 2017:
 1. [CompEdge Cross @ Blunt Park](https://www.bikereg.com/35565)
