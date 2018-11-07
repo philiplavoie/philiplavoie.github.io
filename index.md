@@ -83,7 +83,7 @@
         * SUN - Masters 40+ Cat 1-4 Men and Cat 1-4 Juniors 15-18	45 minutes	10:15 AM
 
 1. [USAC-CX Nationals Week](https://legacy.usacycling.org/2018/cx-nationals)
-    *  December 11-16, 2018 - Louisville, Ky.
+    * December 11-16, 2018 - Louisville, Ky.
     * 12/11/2018 Cyclo-cross Men Non-Championship 40-49
     * 12/14/2018 Cyclo-cross Men Master 45-49 Cat 1/2/3
     * 12/15/2018 Cyclo-cross Men Singlespeed
