@@ -46,14 +46,14 @@
     * Hampton Inn & Suites Baltimore/Woodlawn - Oct 5, 2018 to Oct 7, 2018
         * [1810 Belmont Ave, Windsor Mill, MD 21244](https://goo.gl/maps/enzmweTpWyA2)
 
-1. [20th CRAFT Sportswear Gran Prix of Gloucester Presented by Ipswich Brewing](https://www.bikereg.com/gpg18)
+1. [20th CRAFT Sportswear Gran Prix of Gloucester Presented by Ipswich Brewing](https://www.bikereg.com/gpg18) - DNF/DNS: pinched nerve
     *  Gloucester, MA, Sat Oct 13 - Sun Oct 14, 2018
     *  Stage Fort Park, Gloucester, MA  01930
         * 11:30AM both days
         * SATURDAY: Men Masters 40+ Cat 1/2/3/4 & Men Junior 15-18 Cat 1/2/3/4
         * SUNDAY: Men Masters 40+ Cat 1/2/3/4 & Men Junior 15-18 Cat 1/2/3/4
 
-1. [DCCX - UCI C2 Weekend](https://www.bikereg.com/gpg18)
+1. [DCCX - UCI C2 Weekend](https://www.bikereg.com/gpg18) - DNS: pinched nerve
     *  Washington, DC, Sat Oct 20 - Sun Oct 21, 2018
     *  [324 Rock Creek Church Road NW, Washington, DC  20011](https://maps.google.com/?daddr=38.9388674,-77.0162368)
         * 1:00PM both days
@@ -62,7 +62,9 @@
     * Hampton Inn - Oct 19-21
         * [9670 Baltimore Avenue, College Park, MD 20740](https://goo.gl/maps/5HewBFQ8Pz82)
 
-1. [North Hampton](https://www.bikereg.com/40200)
+1. HPCX - 10/28 Masters 40+ Both days - DNS: pinched nerve
+
+1. [North Hampton](https://www.bikereg.com/40200) -  DNS: pinched nerve
     * Northampton, MA, Sat Nov 10 - Sun Nov 11, 2018
     * Start line address: [300 N Main St, Northampton, MA  01062](https://goo.gl/maps/DYhV6UgjVo22)
         * 10:45AM both days
